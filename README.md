@@ -1,4 +1,4 @@
-# fonts-DGM-Eksekutif-22
+# FONTS DESAIN GRAFIS DAN MULTIMEDIA (2024)
 M. Rizki Rianto - I.2210881 <br>
 Desain Grafis dan Multimedia <br>
 
